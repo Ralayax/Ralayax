@@ -1,1 +1,1 @@
-I'm a medical student, but mainly a nerd living in his cave.
+I'm a medical doctor, but also an IT nerd !
